@@ -1,2 +1,2 @@
 # hello-world
-first ever repository
+Experienced Engineering Project Manager in Consumer Technology.  Leads projects for New Product Introduction, Post-Ramp Qualification, and Custom Line Extensions. Technical Lead.  Well versed in dynamic and rapidly changing environments.  Certified Scrum Master.  Bachelors and Masters of Science in Electrical Engineering.  PMP in progress, expected July 2018.  Very curious about the software world.  Retired Circus performer.
